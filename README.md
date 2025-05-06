@@ -1,13 +1,5 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=D11C92&size=35&center=true&vCenter=true&width=1000&lines=Olá,+meu+nome+é+Luna+Valentina;Sejam+Bem-vinde!;Devenvolvedora+Frontend:%29)](https://git.io/typing-svg)
-
-<p> 🏳‍⚧ Travesti,
-<br>
-🎒 Mochileira,
-<br>
-🐶 Mãe do Simba,
-<br>
-💻 Construindo minha vida com códigos! </p>
   
 <br>
 <div align="center">
